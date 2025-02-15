@@ -1,2 +1,4 @@
-# how-to-get-removed-from-rubens-sim-list-aka-moderation-for-dummies
-This will teach you how to get off Rubens Sim/Moderation For Dummies ERP accounts list.
+# This will tell you how to get removed from Rubens Sim/Moderation For Dummies list
+## Follow the instructions carefully
+
+**Instructions will be given once i make a Youtube Video explaining how**
